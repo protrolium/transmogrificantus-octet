@@ -1,7 +1,7 @@
 # Transmogrificantus Octet
 
 *Transmogrificantus Octet* (2013)<br>
-in memory of Austin Peralta (1990-2012)
+in memory of Austin Peralta
 
  
 Instrumentation: 5 Violins, 2 Violas, 1 Violincello<br>
