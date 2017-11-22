@@ -16,7 +16,7 @@ Produced by: [Ali Helnwein](http://alihelnwein.com/)<br>
 Recording Engineer: [Travis Warner](https://twitter.com/traviswarner_)<br>
 Mastering: Shaun Michaud at [PARMA Recordings](http://www.parmarecordings.com/)<br>
 Artwork/Design: Ben Olsen<br>
-Distributed by: [AlphaPup Records](http://www.alphapuprecords.com/releasepage.php?UPC=669158526802)<br>
+Distributed by: [Dome of Doom](https://domeofdoom.bandcamp.com/album/transmogrificantus-octet) • [AlphaPup Records](http://www.alphapuprecords.com/releasepage.php?UPC=669158526802)<br>
 Release Date: July 29, 2014
 
 [View project on music.gavingamboa.net](http://music.gavingamboa.net/transmogrificantus-octet/)
